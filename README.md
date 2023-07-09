@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌱 I’m currently learning Web-Devlopment<br>📫 How to reach me viralchauhan4438@gmail.com<br>⚡ Fun fact I think I am Funny..
+🌱 I’m currently learning Web-Devlopment<br>📫 How to reach me , viralchauhan4438@gmail.com<br>⚡ Fun fact, I think I am Funny..😅
 
 
 ## 🌐 Socials:
